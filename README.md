@@ -13,6 +13,8 @@
 
 <img width="500" height="493" alt="n" src="https://github.com/user-attachments/assets/331983db-45fe-4b8c-9ae7-54d3eac2df1d" />
 
+![ezgif-2dbdb370435aee15](https://github.com/user-attachments/assets/8fb0ff28-4a5c-4e6c-8e0c-b53af1af53ee)
+
 
 𝘤𝘢𝘯 𝘺𝘰𝘶 𝘵𝘦𝘭𝘭 𝘪 𝘭𝘪𝘬𝘦 𝘥𝘢𝘱𝘩?
 
