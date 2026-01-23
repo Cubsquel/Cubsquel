@@ -8,6 +8,8 @@
 𝗰𝘂𝗯𝘀𝗾𝘂𝗲𝗹 (𝘿𝙖𝙥𝙝𝙣𝙞𝙨 𝙈𝙖𝙣𝙖𝙡𝙖𝙨𝙩𝙖𝙨 1# 𝙛𝙖𝙣 𝙖𝙣𝙙 𝙠𝙞𝙣𝙣𝙞𝙚)
    <div align="center">
 
+  ![sxpn4n](https://github.com/user-attachments/assets/b07dd5df-0d6a-4cd6-8f1f-448ccd7759a5)
+
 
 
 <div align="center"> <img width="500" height="493" alt="n" src="https://github.com/user-attachments/assets/331983db-45fe-4b8c-9ae7-54d3eac2df1d" />
