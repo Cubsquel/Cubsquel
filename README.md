@@ -12,12 +12,11 @@
 
 
 
-
-<div align="center"> <img width="500" height="493" alt="n" src="https://github.com/user-attachments/assets/331983db-45fe-4b8c-9ae7-54d3eac2df1d" />
-
+<img width="2048" height="2048" alt="Untitled11_20260128131856" src="https://github.com/user-attachments/assets/fcfd1041-b9f6-4e9b-8f3d-f56252da3539" />
 
 
-𝘤𝘢𝘯 𝘺𝘰𝘶 𝘵𝘦𝘭𝘭 𝘪 𝘭𝘪𝘬𝘦 𝘥𝘢𝘱𝘩?
+
+
 
 ![3bb1959c-3a50-43d0-8b72-cdc5dbe45521](https://github.com/user-attachments/assets/906b7d4e-c834-4eaf-8c27-5576f68f294d)
 
