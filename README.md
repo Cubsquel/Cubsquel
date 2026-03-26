@@ -10,6 +10,6 @@
 
 𝘤𝘩𝘦𝘤𝘬 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 4 𝘮𝘰𝘳𝘦
 
+ ![](https://komarev.com/ghpvc/?username=your-github-cubsquel&label=cublings+++&&color=bbff00)
 
-<img width="400" height="400" src="ezgif-274b8d03744852ec.gif" />
 
